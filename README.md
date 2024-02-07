@@ -1,0 +1,1 @@
+gk ngapa ngapain bang
